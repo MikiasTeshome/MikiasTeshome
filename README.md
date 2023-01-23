@@ -10,5 +10,5 @@
 
 <!---
 MikiasTeshome/MikiasTeshome is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look wow at your changes. yes yes Dready got a job to do
+You can click the Preview link to take a look wow at your changes. yes yes Dready got a job to do to day no have to commit but still you commit to 
 --->
