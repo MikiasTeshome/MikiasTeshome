@@ -10,5 +10,5 @@
 
 <!---
 MikiasTeshome/MikiasTeshome is a ✨ special ✨ repository because its ` README.md `(this file) appears on your GitHub profile.
-You can click ?? the Preview l ink to take  ?? this comment a look wow at your change s. yes yes Dready got a job to do to day no have to commit but u still you commit t for o 
+You can click ?? the Preview l ink to take  ?? this comment a look wow at your change s. Dready got a job to do to day no have to commit but u still you commit t for o 
 - -->
