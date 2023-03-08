@@ -12,4 +12,5 @@
 MikiasTeshome/MikiasTeshome is a ✨ special ✨repository because its ` README.md `(this file) appears on your GitHub profile. scared money dont make no money woo
 You can click herenow the Preview link to takethis comment a look wow at your changes. YES,Dready got a job to do to day no have to commit but you still you committ for oll
 school work hassle is very badd 
- you have to show what you working be gid--->
+ you have to show what you working be gid
+ they will not see you what ever you --->
