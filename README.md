@@ -14,4 +14,5 @@ You can click herenow the Preview link to takethis comment a look wow at your ch
 school work hassle is very badd 
  you have to show what you working be gid
  they will not see you what ever you 
- nut strange things pass --->
+ nut strange things pass
+ the next day also fucked--->
