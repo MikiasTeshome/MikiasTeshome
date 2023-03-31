@@ -22,4 +22,5 @@ school work hassle is very badd
  amd i realized my friends are not real  
  they are useless for 
  ayi endatkefa 
+ 
  --->
