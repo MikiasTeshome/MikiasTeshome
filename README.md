@@ -19,6 +19,7 @@ school work hassle is very badd
  
  there is no salary sence 3 month 
  i am going to hate every one
+ 
  3 arat ken samntu aza  
  amd i realized my friends are not real  
  they are useless for 
