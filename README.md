@@ -18,7 +18,7 @@ school work hassle is very badd
  the next day also fucked
  
  there is no salary sence 3 month 
- i am going to hate every one
+ i am going to hate every one this is probably 
  
  3 arat ken samntu aza  
  amd i realized my friends are not real  
