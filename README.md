@@ -46,5 +46,5 @@ Ena sewyewm maker legizew sira ykum bilal
  
 Tesfa endemankort tesfa enaregalen
 
-
+mn neger bimeta memokerkin ma 
  --->
