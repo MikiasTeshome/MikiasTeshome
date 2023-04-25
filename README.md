@@ -16,7 +16,7 @@ school work hassle is very badd.
  they will not see you what ever you 
  
 
- nut strange things pass
+ nut strange things pass 
  the next day also fucked
  
 
