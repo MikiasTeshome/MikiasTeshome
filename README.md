@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Mikias Teshome</h1> 
+<h1 align="center">Hi 👋, I'm Mikias Teshome</h1>  
 <h3 align="center">A full Stack developer from Ethiopia</h3>
 <!-- - 👀 I’m interested in ...  to be rich <br/>
 - 🌱 I’m currently learning ... <br/>
