@@ -15,7 +15,6 @@ school work hassle is very badd.
  you have to show what you working be gid
  they will not see you what ever you  
  
-
  nut strange things pass 
  the next day also fucked 
  
