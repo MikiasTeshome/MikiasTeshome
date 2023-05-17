@@ -41,4 +41,5 @@ Tesfa endemankort tesfa enaregalen
 
 mnm neger bimeta memokerkin makom yelebhm
  hule mimokirew lij new simh 
+ today is car day
  --->
