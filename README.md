@@ -17,7 +17,7 @@ school work hassle is very badd.
  
  nut strange things pass 
  the next day also fucked 
- 
+  
  there is no salary sence 3 month 
 
  i am going to hate every one this is probably this is  
