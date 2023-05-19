@@ -22,7 +22,7 @@ school work hassle is very badd.
 
  i am going to hate every one this is probably this is  
  pain  
- 3 arat ken samntu aza 
+ 3 arat ken samntu aza 777
  
  and i realized my friends are not real
  
