@@ -24,7 +24,7 @@ school work hassle is very badd.
  pain  
  3 arat ken samntu aza 
  
- and i realized my friends are not real  
+ and i realized my friends are not real
  
  they are useless for no
   
