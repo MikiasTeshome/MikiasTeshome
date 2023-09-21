@@ -45,5 +45,5 @@ mnm neger bimeta memokerkin makom yelebhm
  hule mimokirew lij new simh 
  today is car day 
 
- i am back ke hulet wer bewala ke hulet wer bewala
+ i am back ke hulet wer bewala ke hulet wer bewala ke hulet wer bewala
  --->
